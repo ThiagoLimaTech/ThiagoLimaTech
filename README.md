@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @ThiagoLimaTech
 - 👀 I’m interested in evolution
-- 📫 How to reach me ...
 - 😄 Pronouns: he/him
 
 
